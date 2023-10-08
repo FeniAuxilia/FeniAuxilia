@@ -1,4 +1,6 @@
-- 👋 Hello, This is @FeniAuxilia
-- 👀 Interested in Nature, Math, Coding, Reading and Athletics
+- 👋 Hello, This is @FeniAuxily
+- 🎆 Interested in Nature, Math, Coding, Reading and Athletics
 - 🌱 Currently pursuing M.Sc Cybersecurity in PSG College of Technology
-- 📫 Reach me at auxiliafernandus@gmail.com
+- 👧🏼 Joint Secretary of Women Development Cell for the year 2023-24
+- 🥈 Won Silver Medal in PSG Tech Mini Marathon 2022-23
+- 📫 Reach me at 21pc09@psgtech.ac.in
