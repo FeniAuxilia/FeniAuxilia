@@ -1,4 +1,4 @@
-- 👋 Hello, This is @FeniAuxily
+- 👋 Hello, This is Feni Auxily A
 - 🎆 Interested in Nature, Math, Coding, Reading and Athletics
 - 🌱 Currently pursuing M.Sc Cybersecurity in PSG College of Technology
 - 👧🏼 Joint Secretary of Women Development Cell for the year 2023-24
